@@ -1,0 +1,1 @@
+# hafta6_odevler
